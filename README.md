@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @metavalent
-- 👀 I’m interested in ... quining intersynaptic meme streams
+- 👀 I’m interested in ... quining intersynaptic memestreams
 - 🌱 I’m currently learning ... everything
 - 💞️ I’m looking to collaborate on ... anything
 - 📫 You can reach me ... here
